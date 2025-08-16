@@ -1,1 +1,1 @@
-# Noob Village
+# Welcome to the Noob Village!
