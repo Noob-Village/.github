@@ -10,7 +10,9 @@ WIP
 
 ## Community
 
-WIP
+## Join our Discord community!
+
+[Click here to join our Discord server](https://discord.gg/6nxE3huKqK)
 
 ## Partners
 
